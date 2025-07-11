@@ -20,4 +20,4 @@
 结语  
 选择一个专业、更新及时的日本AV平台，不只是为了观看，更是享受一段高品质的个人时光。正规平台提供的资源丰富、分类清晰、安全稳定，是每位观众的不二之选。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/sisi40444/abcav2 )</span>
